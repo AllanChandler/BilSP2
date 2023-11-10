@@ -1,1 +1,1 @@
-# BilSP2
+Allan Chandler, cph-ac326@cphbusiness.dk 
